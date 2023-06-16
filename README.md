@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @11breezi
+- 👋 Hi, I’m Ritika Choudhary 
 - 👀 I’m interested in basic learning 
 - 🌱 I’m currently learning ethical hacking 
 - 💞️ I’m looking to collaborate on small projects i can do.
